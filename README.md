@@ -6,7 +6,8 @@
 
 
 
-![App](https://github.com/SabaAsgarian/AvadaMobileAppSiteNotResponsive/assets/166124662/a840fff2-09d7-4731-a4e3-ed164c37df43)
+![apppp](https://github.com/SabaAsgarian/AvadaMobileAppSiteNotResponsive/assets/166124662/8d682051-b57d-4127-8adf-ee0d7e66a709)
+
 
 
 
